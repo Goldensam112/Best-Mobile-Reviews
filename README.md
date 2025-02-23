@@ -1,2 +1,3 @@
-# Best-Mobile-Reviews
-Welcome to golden gyan there ar]e available full mobile reviews
+# 🔥 My Tech Blog - Best Mobile Reviews  
+Agar tujhe latest mobile reviews chahiye, to check kar:  
+👉 [Visit Here](https://thenet.co.in) 
